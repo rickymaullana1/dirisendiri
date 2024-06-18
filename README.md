@@ -1,0 +1,2 @@
+# dirisendiri
+buat kedepanya
